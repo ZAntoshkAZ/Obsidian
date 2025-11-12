@@ -9,5 +9,5 @@
 Тимус динамика![[Pasted image 20251111200254.png]]
 
 Тер вер таблица
-![[Pasted image 20251111200445.png]]
+![[Pasted image 20251111200445.png]]![[Pasted image 20251112133659.png]]
 
