@@ -2,8 +2,6 @@
 
 Тимус динамика![[Pasted image 20251111200254.png]]
 
-сдать комбаллы
-
 записаться на стажу https://it.fut.ru/internship/yandex/yaintern
 
 ассемблер 4 задача
